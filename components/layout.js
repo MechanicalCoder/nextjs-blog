@@ -20,7 +20,7 @@ function Layout({ children, home }){
 				{home ? (
 					<div>
 						<img
-							src="/images/logo.png"
+							src="/images/logo.jpg"
 							className={`${styles.headerHomeImage} ${utilStyles.borderCircle}`}
 							alt={name}
 						/>
