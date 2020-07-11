@@ -32,7 +32,7 @@ function Layout({ children, home }){
 							<a>
 								<img 
 									src="/images/profile.jpg"
-									class={`${styles.headerImage} ${utilStyles.borderCircle}`}
+									className={`${styles.headerImage} ${utilStyles.borderCircle}`}
 									alt={name}
 								/>
 							</a>
