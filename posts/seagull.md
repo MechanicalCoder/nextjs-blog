@@ -1,5 +1,5 @@
 ---
-title: 'Seagull By Jonathan Livingstone'
+title: 'Seagull by Jonathan Livingstone'
 date: '2020-08-10'
 ---
 

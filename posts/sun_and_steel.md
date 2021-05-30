@@ -1,5 +1,5 @@
 ---
-title: 'Sun And Steel By Yukio Mishima'
+title: 'Sun And Steel by Yukio Mishima'
 date: '2020-11-18'
 ---
 

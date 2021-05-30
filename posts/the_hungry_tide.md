@@ -1,5 +1,5 @@
 ---
-title: 'The Hungry Tide By Aravind Ghosh'
+title: 'The Hungry Tide by Aravind Ghosh'
 date: '2020-07-18'
 ---
 

@@ -1,5 +1,5 @@
 ---
-title: 'The Lady And The Monk By Pico Iyer'
+title: 'The Lady And The Monk by Pico Iyer'
 date: '2020-07-23'
 ---
 

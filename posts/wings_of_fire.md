@@ -1,5 +1,5 @@
 ---
-title: 'Wings Of Fire By Hon. APJ Abdul Kalam'
+title: 'Wings Of Fire by Hon. APJ Abdul Kalam'
 date: '2021-02-19'
 ---
 

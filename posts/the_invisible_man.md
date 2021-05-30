@@ -1,5 +1,5 @@
 ---
-title: 'The Invisible Man By H.G.Wells'
+title: 'The Invisible Man by H.G.Wells'
 date: '2020-08-02'
 ---
 

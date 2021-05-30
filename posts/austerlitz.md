@@ -1,0 +1,209 @@
+---
+title: 'Austerlitz by W.G.Sebald'
+date: '2021-05-02'
+---
+
+**Rating**: 5/5
+
+## Notable Lines
+- The gleam of gold and silver on the huge, half-obscured mirrors on the wall facing the windows not yet entirely extinguished before a subterranean twilight filled the waiting-room, where a few travellers sat far apart, silent and motionless. [5]
+- Yet, he said, it is often our mightiest projects that most obviously betray the degree of our insecurity. [16]
+- No one can explain exactly what happens within us when the doors behind which our childhood terrors lurk are flung open [33]
+- And they were usually shorter than they had been in life, for the experience of death, said Evan, diminishes us, just as a piece of linen shrinks when you first wash it [75]
+- **Condition at Stower Grange** - There were all kinds of forms of major tyranny and minor despotism, forced labour, enslavement, serfdom, the bestowal and withdrawal of privileges, hero-worship, ostracism, the imposition of penalties and the granting of reprieves, and by dint of these the pupils, without any supervision, governed themselves and indeed the entire school, not excluding the masters. [82]
+- China-Marks, Dark Porcelains and Marbled Beauties, Scarce Silverlines or Burnished Brass, Green Foresters and Green Adelas, White Plumes, Light Arches, Old Ladies and Ghost Moths [128]
+
+
+## Word Meaning
+- **Viaduct** 
+- **Turret** - In architecture, a turret is a small tower that projects vertically from the wall of a building such as a medieval castle. Turrets were used to provide a projecting defensive position allowing covering fire to the adjacent wall in the days of military fortification.
+- **Dappled**
+- **Verdigris** - a bright bluish-green encrustation or patina formed on copper or brass by atmospheric oxidation, consisting of basic copper carbonate.
+- **Dromedary** - an Arabian one-humped camel, especially one of a light and swift breed trained for riding or racing.
+- **Foyer** - an entrance hall or other open area in a building used by the public, especially a hotel or theater.
+- **Calico** - printed cotton fabric.
+- **Fluted Pilasters** - Pilasters are a type of door and window trim that are used to frame the vertical sides of doors and windows. The fluted pilaster is meant to resemble the columns used in Greek and Roman architecture, which were usually fluted.
+- **Bellows** - In photography, a bellows is the accordion-like, pleated expandable part of a camera, usually a large or medium format camera, to allow the lens to be moved with respect to the focal plane for focusing. The bellows provides a flexible, dark extension between the film plane and the lens.
+- **Gilded** - covered thinly with gold leaf or gold paint.
+- **Inexorable** - impossible to stop or prevent.
+- **Consecrated** - (of a church or land) having been made or declared sacred.
+- **Escutcheons** - a shield or emblem bearing a coat of arms.
+- **Heraldry** - the system by which coats of arms and other armorial bearings are devised, described, and regulated.
+- **Moorish** - The Moors initially were the indigenous Maghrebine Berbers. The name was later also applied to Arabs and Arabized Iberians.
+- **The Byzantine Empire, also referred to as the Eastern Roman Empire**, or Byzantium, was the continuation of the Roman Empire in its eastern provinces during Late Antiquity and the Middle Ages, when its capital city was Constantinople.
+- **Baroque** - Relating to or denoting a style of European architecture. Highly ornate and extravagant in style.
+- **Foyer** - an entrance hall or other open area in a building used by the public, especially a hotel or theater.
+- **Pantheon** - a building in which the illustrious dead of a nation are buried or honoured.
+- **Promenade** - a paved public walk, typically one along a waterfront at a resort.
+- **Cavalier** - a dashing and attentive man, especially one acting as a lady's escort
+- **Pallid** - feeble or insipid.
+- **Siege** - a military operation in which enemy forces surround a town or building, cutting off essential supplies, with the aim of compelling the surrender of those inside.
+- **Casemates** - a small room in the thickness of the wall of a fortress, with embrasures from which guns or missiles can be fired.
+- **Garrison** - the troops stationed in a fortress or town to defend it.
+- **Calcareous** - containing calcium carbonate; chalky.
+- **Anteroom** - an antechamber, typically serving as a waiting room.
+- **Detritus** - waste or debris of any kind.
+- **Furrow** - a long narrow trench made in the ground by a plow, especially for planting seeds or for irrigation.
+- **Ruts** - a long deep track made by the repeated passage of the wheels of vehicles.
+- **Drudgery** - hard menial or dull work.
+- **Adages** - a proverb or short statement expressing a general truth.
+- **Oubliette** - a secret dungeon with access only through a trapdoor in its ceiling.
+- **Formica (table)** - The word Formica refers to the company's heat-resistant, wipe-clean laminate of paper or textile with melamine resin
+- **Cul-de-sac** - a street or passage closed at one end.
+- **Lectern** - a tall stand with a sloping top to hold a book or notes, from which someone, typically a preacher or lecturer, can read while standing up.
+- **Warren** - a densely populated or labyrinthine building or district.
+- **Chicory** - a blue-flowered Mediterranean plant of the daisy family, cultivated for its edible salad leaves and carrot-shaped root.
+- **Mauve** - of a pale purple color.
+- **Thawed out** - gradually getting warm again after being very cold
+- **Bestiary** - a descriptive or anecdotal treatise on various real or mythical kinds of animals, especially a medieval work with a moralizing tone.
+- **Patisserie** - a shop where French pastries and cakes are sold
+- **Hoar frost** - a grayish-white crystalline deposit of frozen water vapor formed in clear still weather on vegetation, fences, etc.
+- **Despondency** - a state of low spirits caused by loss of hope or courage.
+- **Eschatology** - the part of theology concerned with death, judgment, and the final destiny of the soul and of humankind.
+- **Bunting** - American Sparrow
+- **Cubby-hole** - a small, enclosed compartment or room.
+- **Homiletic literature** - Homiletics comprises the study of the composition and delivery of a sermon or other religious discourse.
+- **Ectoplasm** - a supernatural viscous substance that is supposed to exude from the body of a medium during a spiritualistic trance and form the material for the manifestation of spirits.
+- **Clairvoyant** - a person who claims to have a supernatural ability to perceive events in the future or beyond normal sensory contact.
+- **Stertorous** - (of breathing) noisy and labored.
+- **Pulpit** - a raised platform or lectern in a church or chapel from which the preacher delivers a sermon.
+- **Marshalling Yard** is a place where goods trains are received, sorted, reformed and dispatched.
+- **Euthanasia** - the painless killing of a patient suffering from an incurable and painful disease or in an irreversible coma. The practice is illegal in most countries.
+- **Cavalry** - (in the past) soldiers who fought on horseback.
+- **Floe** - a sheet of floating ice.
+- **Ignominious** - deserving or causing public disgrace or shame.
+- **Lanceolate** - of a narrow oval shape tapering to a point at each end.
+- **Fag** - a junior pupil at a private school who works and runs errands for a senior pupil.
+- **Estuary** - the tidal mouth of a large river, where the tide meets the stream.
+- **Fjord** - a long, narrow, deep inlet of the sea between high cliffs, as in Norway and Iceland, typically formed by submergence of a glaciated valley.
+- **Inundated** - overwhelm (someone) with things or people to be dealt with.
+- **Provenance** - the place of origin or earliest known history of something.
+- **Sarcophagus** - a stone coffin, typically adorned with a sculpture or inscription and associated with the ancient civilizations of Egypt, Rome, and Greece.
+- **Schism** - a split or division between strongly opposed sections or parties, caused by differences in opinion or belief.
+- **Perambulations** - the act of walking around, surveying land, or touring
+- **Smock** - a loose garment worn over one's clothes to protect them.
+- **Frond** - the leaf or leaflike part of a palm, fern, or similar plant.
+- **Promontory** - a point of high land that juts out into a large body of water; a headland.
+- **Resplendent** - attractive and impressive through being richly colorful or sumptuous.
+- **Curlicue** - a decorative curl or twist in calligraphy or in the design of an object.
+- **Disquisitions** - a long or elaborate essay or discussion on a particular subject
+- **Precipice** - a very steep rock face or cliff, especially a tall one.
+- **Evanescent** - soon passing out of sight, memory, or existence; quickly fading or disappearing.
+- **Bungle** - carry out (a task) clumsily or incompetently.
+- **Frieze** - a broad horizontal band of sculpted or painted decoration, especially on a wall near the ceiling.
+- **Mendacious** - not telling the truth; lying.
+- **Colonnade** - a row of columns supporting a roof, an entablature, or arcade
+- **Convalescent** - (of a person) recovering from an illness or operation.
+- **Baize** - a coarse, typically green woolen material resembling felt, used for covering billiard and card tables.
+- **Requisition** - demand the use or supply of, especially by official order and for military or public use.
+- **Cortege** - a solemn procession, especially for a funeral.
+- **Parquet** - flooring composed of wooden blocks arranged in a geometric pattern.
+- **Garish** - obtrusively bright and showy; lurid.
+- **Dovecote** - A dovecote or dovecot, doocot or columbarium is a structure intended to house pigeons or doves.
+- **Torpor** - a state of physical or mental inactivity; lethargy.
+- **Corporeality** - the quality of being physical; consisting of matter. corporality, physicalness, materiality.
+- **Palmate** - (of a leaf) having several lobes (typically 5–7) whose midribs all radiate from one point.
+- **Weir** - a low dam built across a river to raise the level of water upstream or regulate its flow.
+- **Warren** - a network of interconnecting rabbit burrows.
+- **Putrid** - (of organic matter) decaying or rotting and emitting a fetid smell.
+- **Morass** - an area of muddy or boggy ground.
+- **Nave** - the central part of a church building, intended to accommodate most of the congregation. In traditional Western churches it is rectangular, separated from the chancel by a step or rail, and from adjacent aisles by pillars.
+- **Gabardine** - a smooth, durable twill-woven cloth, typically of worsted or cotton.
+- **Petrification** - the process by which organic matter exposed to minerals over a long period is turned into a stony substance.
+- **Antiquarian** - relating to or dealing in antiques or rare books.
+- **Mausoleum** - a stately or impressive building housing a tomb or group of tombs.
+- **Quay** - a concrete, stone, or metal platform lying alongside or projecting into water for loading and unloading ships.
+- **Tartan** - a patterned cloth consisting of criss-crossed, horizontal and vertical bands in multiple colours. Scottish and Irish origin
+- **Beret** - a round flattish cap of felt or cloth.
+- **Bandoneon** - a type of concertina particularly popular in Argentina and Uruguay. It is a typical instrument in most tango ensembles.
+- **Desultorily** - in a way that is without a clear plan or purpose and shows little effort or interest
+- **Plumage** - a bird's feathers collectively.
+- **Balustrade** - a railing supported by balusters, especially an ornamental parapet on a balcony, bridge, or terrace.
+- **Redingote** - a woman's long coat with a cutaway or contrasting front.
+- **Thoroughfare** - a road or path forming a route between two places.
+- **Diorama** - a model representing a scene with three-dimensional figures, either in miniature or as a large-scale museum exhibit.
+- **Funicular** - (of a railroad, especially one on a mountainside) operating by cable with ascending and descending cars counterbalanced.
+- **Spinster** - an unmarried woman, typically an older woman beyond the usual age for marriage.
+- **Proscenium** - the part of a theater stage in front of the curtain.
+- **Sequin** - a small, shiny disk sewn as one of many onto clothing for decoration.
+- **Carafe** - an open-topped glass flask used for serving wine or water in a restaurant.
+- **Parvenus** - a person of obscure origin who has gained wealth, influence, or celebrity.
+- **Indolent** - wanting to avoid activity or exertion; lazy.
+- **Paroxysm** - a sudden attack or violent expression of a particular emotion or activity.
+- **Haberdashery** - men's clothing and accessories.
+- **Trifle** - a thing of little value or importance.
+- **Toboggan** - a long narrow sled used for the sport of coasting downhill over snow or ice. It typically is made of a lightweight board that is curved upward and backward at the front.
+- **Precinct** - the area within the walls or perceived boundaries of a particular building or place.
+- **Lapidarium** - A lapidarium is a place where stone monuments and fragments of archaeological interest are exhibited. They can include stone epigraphs; statues; architectural elements such as columns, cornices, and acroterions; bas reliefs, tombstones; and sarcophagi.
+- **Impresario** - a person who organizes and often finances concerts, plays, or operas.
+- **Splint** - a strip of rigid material used for supporting and immobilizing a broken bone when it has been set.
+- **Brocade** - a rich fabric woven with a raised pattern, typically with gold or silver thread.
+- **Corvette** - a small warship designed for convoy escort duty.
+- **Epaulet** - an ornamental shoulder piece on an item of clothing, especially on the coat or jacket of a military uniform.
+- **Glacis** - a gently sloping bank, in particular one that slopes down from a fort, exposing attackers to the defenders' missiles.
+- **Pined** - suffer a mental and physical decline, especially because of a broken heart.
+- **Briquette** - a block of compressed charcoal or coal dust used as fuel.
+- **Roue** - a debauched man, especially an elderly one.
+- **Jagged** - having rough, sharp points protruding.
+- **Attache** - a person on the staff of an ambassador, typically with a specialized area of responsibility.
+- **Paternoster** - an elevator consisting of a series of linked doorless compartments moving continuously on an endless belt.
+- **Portiere** - a curtain hung over a door or doorway.
+- **Arbor** - a shady garden alcove with sides and a roof formed by trees or climbing plants trained over a wooden framework.
+- **Coloratura** - elaborate ornamentation of a vocal melody, especially in operatic singing by a soprano.
+- **Insidious** - proceeding in a gradual, subtle way, but with harmful effects.
+- **Decrepit** - worn out or ruined because of age or neglect.
+- **Immured** - enclose or confine (someone) against their will.
+- **Portent** - a sign or warning that something, especially something momentous or calamitous, is likely to happen.
+- **Throng** - a large, densely packed crowd of people or animals.
+- **Toque** - a woman's small hat having a narrow, closely turned up brim.
+- **Sinter** - a hard siliceous or calcareous deposit precipitated from mineral springs.
+- **Embankment** - a wall or bank of earth or stone built to prevent a river flooding an area.
+- **Inundate** - overwhelm (someone) with things or people to be dealt with.
+- **Palpitate** - (of the heart) beat rapidly, strongly, or irregularly.
+- **Roofer** - a person who constructs or repairs roofs.
+- **Tenor** - the general meaning, sense, or content of something.
+- **Tome** - a book, especially a large, heavy, scholarly one.
+- **Galoshes** - a waterproof overshoe, typically made of rubber.
+- **Salubrious** - (of a place) pleasant; not run-down.
+- **Sluiced** - wash or rinse freely with a stream or shower of water.
+- **Dissimulate** - conceal or disguise (one's thoughts, feelings, or character).
+- **Columbarium** - a room or building with niches for funeral urns to be stored.
+- **Convalescent** - (of a person) recovering from an illness or operation.
+- **Cabaret** - entertainment held in a nightclub or restaurant while the audience eats or drinks at tables.
+- **Rampart** - a defensive wall of a castle or walled city, having a broad top with a walkway and typically a stone parapet.
+- **Smithy** - a blacksmith's workshop; a forge.
+- **Euphoneus** - (of sound, especially speech) pleasing to the ear.
+- **Ramification** - a complex or unwelcome consequence of an action or event.
+- **Manger** - a long open box or trough for horses or cattle to eat from.
+- **Burnous** - a long, loose hooded cloak worn by Arabs.
+- **Flayed** - peel the skin off (a corpse or carcass).
+- **Vitrification** - the transformation of a substance into a glass, that is to say, a non-crystalline amorphous solid.
+- **Penitentiary** - a prison for people convicted of serious crimes.
+- **Volition** - the faculty or power of using one's will.
+- **Grotto** - a small picturesque cave, especially an artificial one in a park or garden. 
+- **Syncopation** - a disturbance or interruption of the regular flow of rhythm.
+- **Inimical** - tending to obstruct or harm. Unfriendly and hostile.
+- **Banishment** - the punishment of being sent away from a country or other place.
+- **Hawsers** - a thick rope or cable for mooring or towing a ship.
+- **Gaunt** - (of a person) lean and haggard, especially because of suffering, hunger, or age.
+- **Dessicated** - remove the moisture from (something); cause to become completely dry.
+- **Brasserie** - an informal restaurant, especially one in France or modeled on a French one and with a large selection of drinks.
+- **Outworks** - a section of a fortification or system of defense which is in front of the main part.
+- **Glacis** - a gently sloping bank, in particular one that slopes down from a fort, exposing attackers to the defenders' missiles.
+- **Importunate** - persistent, especially to the point of annoyance or intrusion.
+- **Belvedere** - a summerhouse or open-sided gallery, usually at rooftop level, commanding a fine view.
+- **Excrescence** - a distinct outgrowth on a human or animal body or on a plant, especially one that is the result of disease or abnormality.
+- **Requisiton** - demand the use or supply of, especially by official order and for military or public use.
+- **Pantechnicon** - a large van for transporting furniture
+- **Expropriation** - the action by the state or an authority of taking property from its owner for public use or benefit.
+- **Courturier** - a fashion designer who manufactures and sells clothes that have been tailored to a client's specific requirements and measurements.
+- **Viaduct** - a long bridge-like structure, typically a series of arches, carrying a road or railroad across a valley or other low ground.
+- **Carbolineum** - an oily, water-insoluble, flammable, dark brown mixture from coal tar components, smelling of tar.
+- **Moat** - a deep, wide ditch surrounding a castle, fort, or town, typically filled with water and intended as a defense against attack.
+
+## Other notable elements
+- Nibelungen
+- Oriel turret
+- Louis Delacenserie - architect
+- Central Serous Chorioretinopathy [51]
+- Leonid Meteorite Showers [141]

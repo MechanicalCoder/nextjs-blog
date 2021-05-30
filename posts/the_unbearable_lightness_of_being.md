@@ -1,5 +1,5 @@
 ---
-title: 'The Unbearable Lightness Of Being By Milan Kundera'
+title: 'The Unbearable Lightness Of Being by Milan Kundera'
 date: '2020-10-03'
 ---
 
